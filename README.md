@@ -11,7 +11,7 @@
 ---
 
 ### 🚀 Profiles & Connect
-- 💼 **LinkedIn:** [hasnain-abbas-375b64143](in/hasnain-abbas-375b64413)
+- 💼 **LinkedIn:** [hasnain-abbas-375b64143](https://www.linkedin.com/in/hasnain-abbas-375b64413/)
 - 🐦 **X (Twitter):** [@HasnainAbbas0kt](https://x.com/HasnainAbbas0kt)
 
 *Always learning, building, and open to remote opportunities!*
